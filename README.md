@@ -1,3 +1,4 @@
+## Hanna's Blog
 # Bio
 Welcome to my blog! This is where I'll be talking about my life experiences and interesting things I'd like to share. I'm a digital artist, but it tends to be fanart. I can make anything as long as I keep interest in it. This is currently a work-in-progess, so please don't judge me too hard!
 
