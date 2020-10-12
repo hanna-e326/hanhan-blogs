@@ -4,7 +4,7 @@ Welcome to my blog! This is where I'll be talking about my life experiences and 
 # First Post (10.11.20)
 Today, I think I'll talk about my life and what I like to do. Generally, I tend to draw because it interests me more than doing homework. This leads me to procrastinate, unfortunately, but I still get my assignments done.
 
-
+![image](https://user-images.githubusercontent.com/72177607/95699872-6f2ece00-0bfa-11eb-82b0-d57851ee02b1.png)
 
 Other than that, I like anime and video games a whole lot, so that distracts me too. I keep to myself at home, however, because my sister doesn't respect anything I like at all and will discourage me from liking anything that she is neutral about or doesn't like.
 
@@ -12,7 +12,7 @@ My friends are really supportive, and I really appreciate how kind they are. The
 
 One of them even made this cute picture for our group.
 
-
+![image](https://user-images.githubusercontent.com/72177607/95699862-6938ed00-0bfa-11eb-929b-9f607896f5e9.png)
 
 I've never been more glad to have anyone in my life.
 
