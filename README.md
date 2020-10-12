@@ -14,3 +14,5 @@ One of them even made this cute picture for our group.
 
 
 I've never been more glad to have anyone in my life.
+
+Also, if you want to see my fanart, go to my IG at https://www.instagram/com/inked_toon/
